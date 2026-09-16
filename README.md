@@ -5,4 +5,4 @@ Pigtail Girl!!! & I possess Ft freddie, I love her sm she's my favourite robot!!
 
 I call people names a lot even friends and family so if you don't like that tell me!!!
 
-Don't make jokes about killing my parents or siblings please, It's scary not funny 😥
+I'm really attached to my Mum and Dad, They're the COOLEST people EVER
